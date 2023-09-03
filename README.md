@@ -2,3 +2,8 @@
 Homework 1 
 
 Dulani Wijayarathne
+
+Samuel Khan
+
+Yasmin Shahed
+
